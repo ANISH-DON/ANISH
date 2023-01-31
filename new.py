@@ -1,5 +1,5 @@
 # Obfuscated with PyObfuscate
-ANISH KING
+------------------------------
 LOL ANISH BAU HO MUGII
 #FUCK DECODERSSS
 #PAID COMMAND 
